@@ -1,0 +1,2 @@
+# SPSS-Minitab-Statistical-Analysis
+ 
